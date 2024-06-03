@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on beginner projects
 - 📫 Contacts are listed
 - 😄 Pronouns: She/Any
-- ⚡ Fun fact: I'm a HUGE nerd (as most of us are)
+- ⚡ Fun fact: Huge gamer (as most of us are)
 
 <!---
 Eligeth/Eligeth is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
